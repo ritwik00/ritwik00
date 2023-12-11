@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ritwikbiswas1810@gmail.com**
 
-- ⚡ t **I am programming enthusiastic😊**
+- ⚡  **I am programming enthusiastic😊**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
